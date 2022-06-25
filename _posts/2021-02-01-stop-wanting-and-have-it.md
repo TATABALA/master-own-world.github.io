@@ -4,12 +4,12 @@ layout: post
 catagories: the-method
 ---
 
-
 ## Stop WANTING — and HAVE IT!
 
 It's not easy undoing the mind. Particularly, when we have built up so many concepts of limitation. But, each of us who has taken the Abundance Course has embarked on that journey to undo all our limits and move into having, being and doing all of our highest and most noblest desires.
 
 There is **nothing** noble in hanging out in lack, limitation, and suffering. It is base, ego, unworthy of the Being that you are. Are you ready to rise up and finally CLAIM, in a bold and courageous way, your birthright of Abundance, Freedom, Inner Peace and Security, and Unlimited Love? If not now, ask yourself, when would you be ready?
+
 
 ### Stop "playing" with your goals
 
