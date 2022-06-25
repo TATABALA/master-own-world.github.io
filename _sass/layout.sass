@@ -3,7 +3,7 @@ body
   flex-direction: column
 
 article
-  flex-grow: 5 //Initial parameter is 1
+  flex-grow: 1 //Initial parameter is 1
 
 body > header, body > footer
   display: flex
@@ -11,8 +11,16 @@ body > header, body > footer
   align-items: center
   justify-content: space-between
 
-body > header, body > article, body > footer
-  padding: 1.5em //Origin argument is 1.5em. It can change paddings in Safari, iPhone, but not in brosers of desktop.
+// body > header, body > article, body > footer
+//   padding: 1.5em //Origin argument is 1.5em. It can change paddings in Safari, iPhone, but not in brosers of desktop.
+
+// Below is modified
+body > header, body > footer
+  padding: 1.5em
+
+body > article
+  padding: 3.0em
+// Upper is modified
 
 article header
   margin-bottom: 1.5em
