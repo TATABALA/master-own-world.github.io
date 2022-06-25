@@ -142,5 +142,3 @@ kam bakkshi”
 ---
 
 Source Picture:
-
-![A letter from Kam Bakhshi](/pictures/kam-bakhshi-letter.jpg)
