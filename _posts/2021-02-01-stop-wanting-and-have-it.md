@@ -345,6 +345,6 @@ Source: http://www.releasetechnique.com/newsletter/graduates/archived/2005/septe
 
 To learn more about Release Technique visit: [www.release-technique-review.com/](http://www.release-technique-review.com/)
 
-
-
 Posted by [Карина Рихтер ](https://www.blogger.com/profile/10472011574705664235)at [10:59 AM](http://release-technique.blogspot.com/2007/04/stop-wanting-and-have-it.html) Thursday, April 5, 2007
+
+---foot---
