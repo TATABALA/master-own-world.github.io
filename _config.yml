@@ -19,7 +19,7 @@ navigation:                # accepts {file, title, url, icon, sidebaricon}
   - {file: "index.html", title: "Home", icon: home}   # "icon" without "" is an icon
   - {file: "README.md", title: "About me", icon: address-card}
   - {title: "Categories", file: "category.html", icon: label}
-  - {file: "markdown-page-test.md", title: "MD Page"}
+  - {file: "markdown-page-test.md", title: "MD Page", icon: book}
   
   # navigation configuration can be like this:
   # -{title: "Lab", url: "https://www.google.com" / file: "/blog.md"}
