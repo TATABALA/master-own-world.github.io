@@ -2,10 +2,19 @@
 layout: default
 ---
 
-<article>
-  {% include meta.html post=page %}
+<script src="scrollnav.min.umd.js"></script>
 
-  {% include toc.html html=content %}
+<scritp>
+  const ct = document.querySelector('.post-article');
+  scrollnav.init(ct, {
+    debug: false,
+    easingStyle: 'linear',
+    sections: ($('.post-article > h1').length>0) ? 'h3' : 'h4',
+  });
+</scritp>
+
+<article id="post-article">
+  {% include meta.html post=page %}
 
   {{ content }}
   {% if page.comments != false and site.comments.isso or site.comments.disqus %}
