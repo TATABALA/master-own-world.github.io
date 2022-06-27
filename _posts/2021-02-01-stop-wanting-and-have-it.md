@@ -4,14 +4,12 @@ layout: post
 catagories: the-method
 ---
 
-## Stop WANTING — and HAVE IT!
-
 It's not easy undoing the mind. Particularly, when we have built up so many concepts of limitation. But, each of us who has taken the Abundance Course has embarked on that journey to undo all our limits and move into having, being and doing all of our highest and most noblest desires.
 
 There is **nothing** noble in hanging out in lack, limitation, and suffering. It is base, ego, unworthy of the Being that you are. Are you ready to rise up and finally CLAIM, in a bold and courageous way, your birthright of Abundance, Freedom, Inner Peace and Security, and Unlimited Love? If not now, ask yourself, when would you be ready?
 
 
-### Stop "playing" with your goals
+## Stop "playing" with your goals
 
 As I sit down to write this article, I have but one intention. That intention is to jolt you out of complacency, just in case you have inadvertently settled into a comfort zone with releasing, as sometimes happens.
 
@@ -31,7 +29,7 @@ If you've been playing around with your goals, take a check to see if you're rea
 
 But, is that what you're really after? To feel *a little* happier and *a little* lighter? Will that really satisfy you? No. Never in a million years. Why? Because you know in your Beingness that you are NOT LIMITED and you'll never be totally happy until you regain that natural state.
 
-### Dare to Think Big
+## Dare to Think Big
 
 So, DARE! Dare to go for HAVING your highest and most noble goals. With the achievement of each goal, you will undo a little more of the mind and begin to identify more and more with your unlimited Beingness.
 
@@ -39,7 +37,7 @@ When we see clearly it is *we* who are creating every situation and every circum
 
 When we really see this, the *outer* BECOMES the *inner* to us, and vice versa. The veil of illusion of separation begins to drop and we begin to feel that every atom "out there" in creation is really nothing but our own Consciousness. It is our own thinking projected "outwards" on the blank screen of Being. It is really projected "inwards," actually. It is all in our minds.
 
-### Like turning off a TV set, we can "turn off" the world
+## Like turning off a TV set, we can "turn off" the world
 
 Now, this might sound really strange, but if you take it for checking, you'll find it to be true. If you were to consciously turn off your mind—that is, put it to rest as you do in deep sleep every night—the world would vanish. Not one single person, nor one single object can exist if you did not have a subjective personal awareness of such in your mind.
 
@@ -63,7 +61,7 @@ How limitless are you right now? Take a check.
 
 Have you let your limits keep you crammed up in a little box of mediocrity or do you dare challenge those self-imposed limits and boldly and impudently move into HAVING your desires?
 
-### The danger of "familiarity"
+## The danger of "familiarity"
 
 It's easy to get stuck in the complacency of *wanting*. It is very, very painful to desire things, but somehow it is *familiar* and almost feels safer than daring to assume the consciousness of having our desires now.
 
@@ -73,7 +71,7 @@ Or another example would be the prisoner who is set free from prison but who is 
 
 We all do this. We shut ourselves down. We thwart our limitlessness and feed our limitation with our "Oh, poor me, I'm limited" whining, instead of being bold, courageous and daring. We keep ourselves in a painful, mental straightjacket, whilst our Infinite Being waits for us to identify with It, instead of with the mind and all its limits.
 
-### The power of decision
+## The power of decision
 
 We allow ourselves to be trapped in the status quo—a lukewarm comfort zone that is *neither here nor there*—that is literally our deathbed, while we claim we "live."
 
@@ -93,7 +91,7 @@ Call it "having faith" or whatever term you wish to use. I like the term ***impu
 
 That's what a decision is. It is cutting off all other options and settling on only one. It is a concentrated thought. All concentrated thoughts are extemely powerful, like a laser as opposed to an incandescent bulb.
 
-### An example of pure ***impudence***
+## An example of pure ***impudence***
 
 That's what Lester did when he decided to prove the principle. He left his home with the decision that he was going to Los Angeles from New York.
 
@@ -109,7 +107,7 @@ A moment later the gate attendent saw Lester standing there and said, "Oh my goo
 
 He was put on a flight without money and the same happened for the return flight. He reminds us never to release to "get the money to get the goal" as then we might end up with the money and not the goal. We should go straight for what we want. Lester chose a first class flight to L.A. and he got it without money. When you make a decision the entire universe moves to support you.
 
-### No, it is mine now!
+## No, it is mine now!
 
 Once you have made your decision, although your mind tells you that your goal is off in some distant future and tries getting you to exert effort towards its "eventual" achievement, you say, "No. It is mine now." You simply accept it to be true, and you release the limiting desires and feelings the mind throws up, and boldy and confidently rest in that feeling of HAVING that goal right now.
 
@@ -117,13 +115,13 @@ If you are not doing this, then you are *stuck* in resistance. You are sheepishl
 
 Instead of standing in **having the goal**, and releasing the underlying wanting approval, control and security that get stirred up, we shy away from the goal entirely and get stuck in futilely "hoping" it comes to us. But, it never does come.
 
-### Goals, goals, go away!
+## Goals, goals, go away!
 
 Most of us hate goals. Why? Because they stir up our aversions, our dislikes. But, that's the point of doing goal charts in the Release Technique---to bring these aversions up to the surface so they can be released. There is no other way to release them. Continuing to suppress them sure isn't going to do it.
 
 Our passive timidity towards our goals is like boat drifting on the high seas without a sail, oars, or an engine. We are simply *adrift*.
 
-### The Stand
+## The Stand
 
 Are you ready to take a stand with me? A bold one?
 
@@ -135,7 +133,7 @@ Want to know the decision I made?
 
 I made the decision to never, ever "have to" work for a living every again.
 
-### Lost in space
+## Lost in space
 
 Surprisingly, I never claimed this before today. I kept releasing "toward it" and kept figuring, "Well, someday it will come."
 
@@ -149,7 +147,7 @@ I kept it forever in some safe distant future in my mind, reasoning it was "no b
 
 The future is where that goal would have remained forever had I not claimed it.
 
-### It is a big deal
+## It is a big deal
 
 Such a goal *is* a *very* big deal, not only for me, but FOR ALL OF US.
 
@@ -165,7 +163,7 @@ Our reaction to the world is far more important than our circumstances.
 
 For instance, would you prefer to be in a prison cell and have *Inner Freedom* and *Happiness* — or to be miserable with painful programs of lack and limitation, while your body sat in some tropical paradise? I know which one I would choose. I'd go for the *inner paradise* whilst my body was in a prison cell. How could the other possibly be paradise?
 
-### *"Doership"* is a bunch of "doo doo"
+## *"Doership"* is a bunch of "doo doo"
 
 Is it okay to work? Certainly! But, it should not be required for survival. It should not be an "I have to work" or an "I *should* work," but rather an "I *choose* to serve and uplift others from a place of love."
 
@@ -173,13 +171,13 @@ Our work should come from a place of *non-doership*, where we feel we are being 
 
 There's a saying along these lines, "I do without doing and everything gets done." This is the state Lester was talking about when he repeatedly said, "Be not the doer."
 
-### No more effort. No more time.
+## No more effort. No more time.
 
 The time for the realization of all our goals is always only NOW, and it requires no effort. It is simply a **"now"** assumption of having. It's a DECISION. It is moving into *being* the person you wish to be—the person who already *has* the goal—whether it be freedom, prosperity, unlimited happiness, the perfect relationship, a career goal or a new house.
 
 How would it feel if you had your desire fulfilled right now? If you can't get yourself to feeling it is yours now, then you will *never* have it. It won't happen in ten million years.
 
-### Micro vs. Macro goals
+## Micro vs. Macro goals
 
 We manifest "micro" goals all the time, but somehow always fall short on the "big" ones.
 
@@ -223,7 +221,7 @@ As you move into the feeling of having it, notice the immense release from the p
 
 Again, don't think "of it" but rather, think "from it." *Be* the end. *Be* the goal achieved without time or effort.
 
-### Crossing the gap
+## Crossing the gap
 
 I've been pondering how to make it easy for releasers to cross this gap on a consistent basis. Here is an exercise you can use to make the "leap without distance" from *wanting* into *having*:
 
@@ -257,13 +255,13 @@ The **one single step** that is required to have anything you desire is simply t
 
 **"Think only what you want and that isall you will ever get." - Lester Levenson**
 
-### The most powerful action
+## The most powerful action
 
 Put aside 30 minutes or more every day to take the most powerful and effective action you can ever take towards the achievement of your goals. That action is to release and be 100% ACTIONLESS; to be 100% EFFORTLESS; to collapse space and time and think FROM the feeling that your goals are already achieved, instead of thinking "of" them as some distant goal. Maintain a state of *desirelessness*.
 
 Mastering this ability, you become master of your life and world. There is nothing that will be impossible to you. The secret to your limitless achievement lies in only one place—in your ability to assume the feeling that you are already having, being or doing your goal. No power on earth can stop you from having anything you desire when you live this way. Such is the power of faith, and such is the power of releasing to destroy one's doubts.
 
-### So, have you done it?
+## So, have you done it?
 
 Think about your goal again.
 
@@ -273,7 +271,7 @@ If yes, perfect. Live in that feeling until it comes to pass in the outer and co
 
 If not, then go through the steps again and again until you have fully assumed the feeling of having the goal. It will likely take some practice, as the mind resists change and is usually very unfocused. But, that is what the Method is for—to help knock out extraneous thoughts that keep you from being inwardly quiet and focused on the feeling of having your goal. Use it to your full advantage.
 
-### Changing the reflection "out there"
+## Changing the reflection "out there"
 
 If you are out and about making all sorts of mental effort trying to "get things" and "do things" without first assuming mentally that "It is mine now. It is done," then you are spinning your wheels and will be wasting great amounts of effort where it will do you no good.
 
@@ -289,7 +287,7 @@ In order to change the reflection, you must *adjust the self-image* you hold of 
 
 It can be no other way. All change comes from within.
 
-### The keys points to remember are:
+## The keys points to remember are:
 
 > \1. No effort. Be effortless. Make ZERO mental effort in achieving any goal. Simply assume the feeling of "It is done — I have it now. Thank you!" Take no outer actions towards your goal, except as they come effortlessly and spontaneously in a released state. No inner effort. It should feel as if you are floating. Simply, make your claim of having your goal within, and then release any ego resistance and allow your body to float through life without being the "doer." *Allow*. Allow things to happen. Be the witness. The outer will rearrange itself to reflect back to you your new inner assumption without further mental involvement.
 >
@@ -299,7 +297,7 @@ It can be no other way. All change comes from within.
 
 Think you can do it? You've done it millions of times in your life already, although most of the time you've done it *unconsciously*. Using releasing, you are now *consciously* steering your ship instead of letting your unconscious programs dictate what is best for you based on your suppressed so-called "survival" programs.
 
-### Drill it into your computer
+## Drill it into your computer
 
 Aim to get it through to your computer mind that WANT=LACK. Get beyond the mere intellectual understanding of this. Really discriminate. Feed it into your computer mind that:
 
@@ -311,7 +309,7 @@ Aim to get it through to your computer mind that WANT=LACK. Get beyond the mere 
 
 The ego, in its effort to protect itself, leaves you feeling unsafe, unhappy, out of control, unloved and lacking. It destroys your ability to **have** approval, control and security, which are all wonderful things to have an abundance of. They are inherent in your natural state of *Beingness*. What's off is the ego keeping you stuck in *wanting* it.
 
-### Unplugging "Hal"
+## Unplugging "Hal"
 
 The ego, in its confusion, is keeping you locked in a mental prison every single day. The mental computer that was meant to serve you has gone haywire with viruses.
 
@@ -331,7 +329,7 @@ It will exit "fight or flight" mode and enter "stay and play" mode.
 
 When we release, we make the profound shift from operating from the ancient survival-based reptilian part of our brain, into operating from our frontal lobes, which are responsible for higher thought and Self-actualization.
 
-### The hero is you
+## The hero is you
 
 So, my dear friend, are you ready? Will you take this leap with me? Will you be bold and claim what is yours NOW or will you continue sheepishly *hoping* it will come to you *someday,* as you continue releasing *just a little bit here and there*?
 
