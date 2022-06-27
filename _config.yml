@@ -22,7 +22,7 @@ navigation:                # accepts {file, title, url, icon, sidebaricon}
   - {file: "buddha.md", title: "Buddha"}
   - {file: "the-method.md", title: "Method"}
   - {file: "other-materials.md", title: "Materials"}
-  # - {title: "Categories", file: "category.html", icon: label}
+  - {title: "Categories", file: "category.html"}
  
   
   # navigation configuration can be like this:
