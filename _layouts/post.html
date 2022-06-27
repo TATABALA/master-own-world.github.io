@@ -2,18 +2,7 @@
 layout: default
 ---
 
-<script src="https://unpkg.com/scrollnav@3.0.1/dist/scrollnav.min.umd.js"></script>
-
-<scritp>
-  const ct = document.querySelector('.post__article');
-  scrollnav.init(ct, {
-    debug: false,
-    easingStyle: 'linear',
-    sections: ($('.post__article > h1').length>0) ? 'h3' : 'h4',
-  });
-</scritp>
-
-<article class="post__article">
+<article>
   {% include meta.html post=page %}
 
   {{ content }}
