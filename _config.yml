@@ -18,11 +18,12 @@ minimal: true             # use a dark header
 navigation:                # accepts {file, title, url, icon, sidebaricon}
  # - {file: "index.html", title: "Home", icon: home}   # "icon" without "" is an icon
   #- {file: "README.md", title: "About me", icon: address-card}
-  - {file: "my-blogs.md", title: "Blogs"}
-  - {file: "buddha.md", title: "Buddha"}
-  - {file: "the-method.md", title: "Method"}
-  - {file: "other-materials.md", title: "Materials"}
   - {title: "Category", file: "category.html"}
+  #- {file: "my-blogs.md", title: "Blogs"}
+  #- {file: "buddha.md", title: "Buddha"}
+  #- {file: "the-method.md", title: "Method"}
+  #- {file: "other-materials.md", title: "Materials"}
+  
  
   
   # navigation configuration can be like this:

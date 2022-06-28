@@ -1,7 +1,8 @@
 ---
 title: "Stop WANTING - and HAVE IT!"
 layout: post
-catagories: the-method
+catagories: Releasing
+date: 2020-12-24
 ---
 
 It's not easy undoing the mind. Particularly, when we have built up so many concepts of limitation. But, each of us who has taken the Abundance Course has embarked on that journey to undo all our limits and move into having, being and doing all of our highest and most noblest desires.

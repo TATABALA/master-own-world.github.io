@@ -1,7 +1,7 @@
 ---
 title: "A Letter from Kam Bakhshi"
 layout: post
-categories: Materials
+categories: Releasing
 date: 2022-01-30
 ---
 
