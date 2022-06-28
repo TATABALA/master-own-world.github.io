@@ -9,6 +9,7 @@ categories: Releasing
 
 **LESTER:** There's nothing you have to do to be totally free, anything like that. Why? Right now, you're totally free. You're all-powerful, you're all-knowing, you're everywhere present, you’re whole-complete, perfect right now. There’s nothing you have to do for that.
 
+
 So, says I, why will this effort to be unfree, limited, and miserable? Why? Why? Or why or why? All you need to do is yet after these suppressed energies - I am limited, I am in bondage, I am miserable. By letting up and letting out approval, control, and security. You’ve done it. [INAUDIBLE]. Be done with it. You'll be in a happy state that you never dreamed existed. You've never tasted the ultimate state yet.
 
 You don't have to do a thing to be free because you're already free. You have to stop this asinine conviction that you're suffering body that's going to die, they gotta keep, trying to keep it alive until it dies. It drop lying [INAUDIBLE]. You will not win. So, let go of all this concept about my limited carcass. 

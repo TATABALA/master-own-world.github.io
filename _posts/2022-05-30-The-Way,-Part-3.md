@@ -9,6 +9,7 @@ categories: Releasing
 
 **LESTER:** Maybe we ought to take off where we left off last night. You guys got some deep realizations. I don't know where they're aware of it, and by habit could be B put aside. If I talk about it'll probably come out different anyhow than it did last night. It’s really good. Yes, the guys will tell you what it was, but it was, oh, “Be not the doer.” Who wants to be a door? [LAUGHTER] Because I've been out the door. [LAUGHTER]
 
+
 **STUDENT:** Is this okay to be a window? [LAUGHTER]
 
 **LESTER:** You can see to it. [LAUGHTER] You can see the light through the window. And in general, there was a lot of question on what does it mean be not the doer. So, I think I start off by saying, well, I told you to release to get everything you want. When you are released, you have no sense of doership, everything falls into line. Right? That's it.

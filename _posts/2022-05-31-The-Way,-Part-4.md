@@ -9,6 +9,7 @@ categories: Releasing
 
 **LESTER:** At this point time, give you anymore, I'm giving you too much. How do you feel about it? How do you feel about what I gave you so far? 
 
+
 Well, here's the points. The first one was: **You want the world more than you want freedom**. Second: **Take all your joy from within by releasing**. Next: **Make the decision to go free and then do it**. Next one: **Released directly the fear of dying**. And that's a tough one for you, because you think if you release it, you'll die. The next one is: **Get everything you want from here on by releasing**. I think that's the one I like best, practically, it'll do more for you than anything else.
 
 Can you see why? You'll be releasing every moment, [LAUGHTER] because you're overloaded with want, want and wants. How successful have you been on getting everything you want from here on by releasing? Is it working for any of you that everything you want now, you let go and let it come into your experience? Who’s experiencing getting everything you want by releasing? Anybody? 

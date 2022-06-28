@@ -9,6 +9,7 @@ categories: Releasing
 
 Good morning. Talking about relationships, the sweetest, sweetest kiss of all kisses [LAUGHTERTER] is a kiss of freedom. And in order to get that kiss of freedom, you must understand the word “kiss”, K-I-S-S - keep it simple, sweetheart. [LAUGHTER] If you will latch on to catch hold of absorb understand that simplicity is the way to understanding the Ultimate. It will expedite you getting there tremendously.
 
+
 Keep it simple, sweetheart. It is so simple when you discover it, only then you know it's the simplest of all simples thyself by inner Beingness, your Beingness, your amorous. Knowing which you will know every besides being in the highest, most delectable state there is. And everything you're seeking externally, unconsciously is looking for this ultimate state.
 
 And you'll never ever stop chasing it and banging yourself against the wall of the world, until you discover it by stopping banging yourself against the world, going within and discovering exactly what it is that you are. But you must keep it simple to get to this simplest of all simples, your very own Self.
