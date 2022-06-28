@@ -43,3 +43,5 @@ plugins:
  - jekyll-feed
 
 permalink: /:categories/:title/
+
+google_analytics: G-DE8LWTY051
