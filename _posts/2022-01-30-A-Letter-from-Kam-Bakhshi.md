@@ -5,6 +5,8 @@ categories: Releasing
 date: 2022-01-30
 ---
 
+## Picture Edition
+
 **Dear Graduates:**
 
 I have been releasing for about 4 years. I felt that I had reached a peaceful place of being; little did I realize that I had just been floating above my garbage.
@@ -49,13 +51,11 @@ Kam Bakhshi, United Kingdom
 
 ## Kam Bakhshi的一封信——释放到自由
 
-译者   许耀仁 
+译者   许耀仁
 
-第二张译者 风 
+第二张译者 风
 
 整理  天成
-
----
 
 许耀仁：
 
