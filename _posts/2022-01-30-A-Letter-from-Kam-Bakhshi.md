@@ -2,7 +2,7 @@
 title: "A Letter from Kam Bakhshi"
 layout: post
 categories: Materials
-
+date: 2022-01-30
 ---
 
 **Dear Graduates:**
