@@ -210,7 +210,7 @@ How *hootless* are you about having an extra million dollars? Or about having pe
 
 Make the goal "micro" by releasing. Stop making it such a big deal, as your mind will forever keep it as "big stuff" and you'll forever feel it is outside your reach.
 
-### I double dare you to think FROM your goal
+## I double dare you to think FROM your goal
 
 So, will you *dare* to turn a "big" goal into a "micro" goal through releasing?
 
