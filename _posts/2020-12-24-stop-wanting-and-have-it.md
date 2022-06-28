@@ -1,7 +1,7 @@
 ---
 title: "Stop WANTING - and HAVE IT!"
 layout: post
-catagories: Releasing
+categories: Releasing
 date: 2020-12-24
 ---
 
