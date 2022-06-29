@@ -10,6 +10,7 @@ categories: Releasing
 <font color="grey">KEYWORDS: #Want freedom more than want the world (approval/control), #Allow is the way that happen, #Get it by releasing only, #Letting go and letting God, #Formula for making gold, #Impossible became immidiately possible, #Release only the feeling of stuckness&vagueness, #Please release only </font>
 
 
+---
 **LESTER:** The way you've been doing it, the track wreck it is, and take almost forever. Because how long should it take to do a three-month job? Or three months or less. In other words, you were not doing it. You were toying with it, playing with it, using it to better what you really want - the world. If you were using it to go to the infinite Being that you are, you already would have been free.
 
 Does that make sense? So, what's missing is your want-to. Your want-to is the world. And if it's the world, it's the opposite of your unlimited Beingness.
