@@ -1,5 +1,5 @@
 ---
-title: "Keep It Simple"
+title: "[Transcript] Keep It Simple"
 layout: post
 date: 2022-05-21 21:31 GMT+8
 categories: Releasing
