@@ -7,7 +7,7 @@ categories: Releasing
 
 
 
-<font color="grey">#Don't do halfway jobs, #Action is no hindrance, #Whatever you do - do it to sucess, #No.2 You must make the decision to go free and then do it, #No.3 Go directly to the fear of dying and release it, #No.4 Get everything you want from here on by releasing, #I'm my Beingness </font>
+<font color="grey">KEYWORDS: #Don't do halfway jobs, #Action is no hindrance, #Whatever you do - do it to sucess, #No.2 You must make the decision to go free and then do it, #No.3 Go directly to the fear of dying and release it, #No.4 Get everything you want from here on by releasing, #I'm my Beingness </font>
 
 
 ---
