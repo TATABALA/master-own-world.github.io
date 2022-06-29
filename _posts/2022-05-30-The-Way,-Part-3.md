@@ -7,7 +7,7 @@ categories: Releasing
 
 
 
-<font color="grey">#Be not the doer, #You can't stop action because of karma, #There is nothing out there but your consciousness, #Everything is known that needs to be known, #That's the trickiness of the mind</font>
+<font color="grey">KEYWORDS: #Be not the doer, #You can't stop action because of karma, #There is nothing out there but your consciousness, #Everything is known that needs to be known, #That's the trickiness of the mind</font>
 
 
 ---
