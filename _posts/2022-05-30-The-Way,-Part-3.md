@@ -7,6 +7,8 @@ categories: Releasing
 
 
 
+<font color="grey">#Be not the doer, #You can't stop action because of karma, #There is nothing out there but your consciousness, #Everything is known that needs to be known, #That's the trickiness of the mind</font>
+
 **LESTER:** Maybe we ought to take off where we left off last night. You guys got some deep realizations. I don't know where they're aware of it, and by habit could be B put aside. If I talk about it'll probably come out different anyhow than it did last night. It’s really good. Yes, the guys will tell you what it was, but it was, oh, “Be not the doer.” Who wants to be a door? [LAUGHTER] Because I've been out the door. [LAUGHTER]
 
 
