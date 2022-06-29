@@ -9,6 +9,7 @@ categories: Releasing
 
 **LESTER:** Don't do halfway jobs - You discover a free one does that naturally. Whatever the free one does, he or she does it to perfection. So, it's a very practical tool, whatever you do, no matter what it is, 
 
+
 **AUDIENCE:** [INAUDIBLE]
 
 **LESTER:** They do it so that you’re free in no time flat.
