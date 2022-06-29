@@ -9,8 +9,8 @@ categories: Releasing
 
 <font color="grey">#Don't do halfway jobs, #Action is no hindrance, #Whatever you do - do it to sucess, #No.2 You must make the decision to go free and then do it, #No.3 Go directly to the fear of dying and release it, #No.4 Get everything you want from here on by releasing, #I'm my Beingness </font>
 
-**LESTER:** Don't do halfway jobs - You discover a free one does that naturally. Whatever the free one does, he or she does it to perfection. So, it's a very practical tool, whatever you do, no matter what it is, 
 
+**LESTER:** Don't do halfway jobs - You discover a free one does that naturally. Whatever the free one does, he or she does it to perfection. So, it's a very practical tool, whatever you do, no matter what it is, 
 
 **AUDIENCE:** [INAUDIBLE]
 
