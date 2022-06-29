@@ -10,6 +10,7 @@ categories: Releasing
 <font color="grey">KEYWORDS: #Simplicity, #Quiet the mind, #Survival program, #The way, #Computer, #Transcend hydrogen bomb, #Nothing out there but your thought, #Want freedom more than want everything else</font>
 
 
+---
 Good morning. Talking about relationships, the sweetest, sweetest kiss of all kisses [LAUGHTER] is a kiss of freedom. And in order to get that kiss of freedom, you must understand the word “kiss”, K-I-S-S - keep it simple, sweetheart. [LAUGHTER] If you will latch on to catch hold of absorb understand that simplicity is the way to understanding the Ultimate. It will expedite you getting there tremendously.
 
 Keep it simple, sweetheart. It is so simple when you discover it, only then you know it's the simplest of all simples thyself by inner Beingness, your Beingness, your amorous. Knowing which you will know every besides being in the highest, most delectable state there is. And everything you're seeking externally, unconsciously is looking for this ultimate state.
