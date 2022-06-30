@@ -7,8 +7,11 @@ categories: Releasing
 
 
 
-**LESTER:** At this point time, give you anymore, I'm giving you too much. How do you feel about it? How do you feel about what I gave you so far? 
+<font color="grey">KEYWORDS: #Get everything you want by releasing only - I like best, #Be not the doer, #Make your behavior that which a master would do, #The most directed action to go free is releasing, #The higher you go, the less you resisting suppressed energy, #When you're just being - Bingo</font>
 
+
+---
+**LESTER:** At this point time, give you anymore, I'm giving you too much. How do you feel about it? How do you feel about what I gave you so far? 
 
 Well, here's the points. The first one was: **You want the world more than you want freedom**. Second: **Take all your joy from within by releasing**. Next: **Make the decision to go free and then do it**. Next one: **Released directly the fear of dying**. And that's a tough one for you, because you think if you release it, you'll die. The next one is: **Get everything you want from here on by releasing**. I think that's the one I like best, practically, it'll do more for you than anything else.
 
