@@ -1,5 +1,6 @@
 ---
+title: Contact Me
 layout: page
 ---
 
-Email Address: 1075836198@qq.com
+Email: 1075836198@qq.com
