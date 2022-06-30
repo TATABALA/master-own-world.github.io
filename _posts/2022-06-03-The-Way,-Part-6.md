@@ -7,8 +7,11 @@ categories: Releasing
 
 
 
-**LESTER:** The basis of our philosophy is very simple and is: Each one of us has no limits whatsoever, except those that we hold on to mentally. If we release the mental restrictions, limitations, bondages, we discover we have always been unlimited. We have always been all-powerful, all-knowing, perfect. Because our basic nature is perfect, there’s nothing we can do about it, except look away from it all the time - Where is it? Where is it? Where am I? Where am I? Like a bunch of drunks, trying to discover who and what we are.
+<font color="grey">KEYWORDS: If we release the mental restrictions, we discover we have always been unlimited, #I think you're gonna be stupid, #Metaphysical community, #Release your non-love feelings</font>
 
+
+---
+**LESTER:** The basis of our philosophy is very simple and is: Each one of us has no limits whatsoever, except those that we hold on to mentally. If we release the mental restrictions, limitations, bondages, we discover we have always been unlimited. We have always been all-powerful, all-knowing, perfect. Because our basic nature is perfect, there’s nothing we can do about it, except look away from it all the time - Where is it? Where is it? Where am I? Where am I? Like a bunch of drunks, trying to discover who and what we are.
 
 However, the part of us has blinding us from seeing this unlimited Being that is inherent and natural is what we call our mind, which 24 hours a day, unconsciously, is looking for the absolute security out there in the world where it is not. So, everyone is engaged 24 hours a day subconsciously in the wrong direction, looking for What am I? Who am I? Where am I? Where’s my security? And a 100% hopeless, fruitless, but very frustrating direction.
 
